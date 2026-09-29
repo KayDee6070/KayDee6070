@@ -44,4 +44,4 @@ simulation repositories here are from that side of things.
 
 ---
 
-📍 Weimar, Germany · [LinkedIn](https://www.linkedin.com/in/kuntal-dive-38384b233) · kuntaldive.kd@gmail.com
+📍 Weimar, Germany · [LinkedIn](https://www.linkedin.com/in/kuntaldive) · kuntaldive.kd@gmail.com
